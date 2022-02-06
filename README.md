@@ -57,10 +57,6 @@ Langsung Salin Saja Semua Command Lalu Paste Ke Server
   
 
 
-**Telegram**
-[Senovpn](https://t.me/senovpn)
-
-
 
 
 Donate? **Via Dana** 
